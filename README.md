@@ -8,22 +8,38 @@ ChatGPT 在线体验网站收集列表
 🛫: 可能需要国际网络进行访问
 
 站点列表
-
 [⭐⭐⭐] https://www.weijiwangluo.com/talk/
+
 [⭐⭐🛫] https://chatbot.theb.ai/
+
 [⭐⭐] https://chat.binjie.site:7777/
+
 [⭐⭐] http://ai.usesless.com/
+
 [⭐⭐] https://wen.geekr.dev
+
 [⭐⭐] https://free.anzz.top/
+
 [⭐⭐] https://chat.aidutu.cn/
+
 [⭐⭐] https://chat10.xeasy.me
+
 [⭐⭐] https://chat.wobcw.com/
+
 [⭐⭐] https://aka.mydog.buzz
+
 [⭐⭐] https://greengpt.app/
+
 [⭐⭐] https://ai.ov.cm/
+
 [⭐⭐] https://chat.extkj.cn/
+
 [⭐⭐] https://chatgpt35.theinspiredgroup.com
+
 [⭐⭐🛫] https://freegpt.one/
+
 [⭐⭐] https://hzdjs.cn/chatgpt/chat
+
 [⭐⭐🛫] https://ai.ls/
+
 [⭐⭐🛫] https://desk.im/
